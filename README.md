@@ -1,8 +1,8 @@
-👋 Hi, I’m @anhTuanNo07, you can call me Anh Tuan! :D
-👀 I’m interested in Math, Physics and IT. I love reading literature books, playing games and doing research. That's a little bit academic!
-🌱 I’m the last year student at HUST, my major is "Physics Engineering", but rightnow I'm woking as an developer.
-💞️ I’m looking to collaborate on young and dynamic organizations, I'll try my best and give all of my effort for my job. I'm looking foward to building the big carrer with you!
-📫 My personal facebook link: https://facebook.com/anhtuan1410bkhn
+- 👋 Hi, I’m @anhTuanNo07, you can call me Anh Tuan! :D
+- 👀 I’m interested in Math, Physics and IT. I love reading literature books, playing games and doing research. That's a little bit academic!
+- 🌱 I’m the last year student at HUST, my major is "Physics Engineering", but rightnow I'm woking as an developer.
+- 💞️ I’m looking to collaborate on young and dynamic organizations, I'll try my best and give all of my effort for my job. I'm looking foward to building the big carrer with you!
+- 📫 My personal facebook link: https://facebook.com/anhtuan1410bkhn
 
 
 <!---
